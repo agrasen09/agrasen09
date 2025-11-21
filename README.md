@@ -52,7 +52,7 @@ Here are some ideas to get you started:
 
 📬  Contact :
 
-📧 Email: agrasen09@email
+📧 Email: agrasen09@gmail.com
 
 
 📨 Open to Opportunities
