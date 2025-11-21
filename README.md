@@ -50,7 +50,9 @@ Here are some ideas to get you started:
 
 🎖️ Completed multiple courses in AI, SQL, and Web Dev
 
-📚 Always exploring new tech.
+📬  Contact :
+
+📧 Email: agrasen09@email
 
 
 📨 Open to Opportunities
